@@ -27,12 +27,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Gospel Study/2025-03-17.md",
+                "file": "Gospel Study/2025-05-04.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "2025-03-17"
+              "title": "2025-05-04"
             }
           }
         ],
@@ -160,17 +160,29 @@
               "icon": "lucide-list",
               "title": "Outline of 2024-12-04"
             }
+          },
+          {
+            "id": "234516037e802f0a",
+            "type": "leaf",
+            "state": {
+              "type": "git-view",
+              "state": {},
+              "icon": "git-pull-request",
+              "title": "Source Control"
+            }
           }
         ],
-        "currentTab": 2
+        "currentTab": 4
       }
     ],
     "direction": "horizontal",
-    "width": 200,
-    "collapsed": true
+    "width": 200
   },
   "left-ribbon": {
     "hiddenItems": {
+      "obsidian-excalidraw-plugin:New drawing": false,
+      "templater-obsidian:Templater": false,
+      "obsidian-git:Open Git source control": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
       "canvas:Create new canvas": false,
@@ -181,16 +193,17 @@
   },
   "active": "c97084649bf922af",
   "lastOpenFiles": [
-    "Gospel Study/2025-02-17.md",
-    "Gospel Study/2025-03-17.md",
     "Gospel Study/Come Follow Me 2025.md",
-    "Solar Panel Questions.md",
+    "Gospel Study/2025-05-04.md",
+    "Church/Activity Days Activities.md",
+    "Gospel Study/2025-03-17.md",
+    "Gospel Study/2025-02-17.md",
     "Gospel Study/2025-02-10.md",
     "Gospel Study/2024-12-04.md",
-    "Gospel Study/2024-12-10.md",
-    "Church/Activity Days Activities.md",
-    "Interview Advice.md",
+    "Solar Panel Questions.md",
     "New Year Goals.md",
+    "Interview Advice.md",
+    "Gospel Study/2024-12-10.md",
     "Church/Untitled.md",
     "Church",
     "Gospel Study",
