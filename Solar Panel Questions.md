@@ -1,0 +1,8 @@
+- Who owns the panels?
+- What happens when they need maintenance?
+	- Who pays for that?
+- Is it possible to install a battery later?
+- Is there a warranty for the panels if they stop working?
+- Can we transfer the ownership of the contract to someone else should we sell the home before its paid off?
+- Is there a warranty if the installation results in an issue with our roof?
+- 

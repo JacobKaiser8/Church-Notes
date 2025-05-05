@@ -1,0 +1,20 @@
+- Basketball / 
+- Football / ++++++
+- Sharks and Minnows / ++++++
+- Mini Marshmallows / 
+- Fun Park /
+- Pizza Pie Cafe /
+- Jump Zone /
+- Go to Newton Dam Kayaks and swimming /
+- Soccer / ++
+- Go to the pool / ++++
+- Snow ball fight / 
+- Nerf wars / +++
+- Board games / 
+- Building model train layout / +
+- Build legos / +
+- Origami / ++
+- Marshmallow guns / ++++
+- Learn how to make bread / ++++
+	- Learn about the sacrament /
+- What time is it Mr wolf / +

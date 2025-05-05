@@ -1,0 +1,8 @@
+- When asked for experience I don't have, say "No but..." and then give detailed experience that would relate or is adjacent to the question asked.
+- When asked do give an "example of a time when...", follow the STARR method:
+	- Situation/Scene: Describe the situation or the scene - provide context of the situation, details, connecting it to the question
+	- Task: Describe the role I was given in the situation
+	- Action: Explain how I addressed the situation, steps you took to overcome the challenge, or resolve the issue. 
+	- Result: How did those actions add value? What was the overall outcome?
+	- Reflect: In a similar situation what would you have done differently? What would you do again?
+- When asked about compensation, try not to give a specific number. Generalize. Tell them that I need to take into account the overall compensation package.
