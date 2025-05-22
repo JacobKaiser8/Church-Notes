@@ -6,12 +6,19 @@
 - Consistent Persistent changes
 - Taking the words to heart. Thinking, "how that affect my life/How can I allow that to change me?"
 - Don't take the Gospel as cool facts or interesting knowledge, but take it personally
-- Mosiah 18:8-9
-	“As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
-	“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.”
+- Mosiah 18:8-9	
+	8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
+	9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.
 - Elder Eyring promises:
-		As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him.”By helping others for the Savior, you will find that you are drawing nearer to Him.
+	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him.”By helping others for the Savior, you will find that you are drawing nearer to Him."
 - Bringing family members back is not your job. Creating an environment where they can feel loved and more easily feel the spirit is what will allow the spirit to do its job.
+- As we continue to strive to follow Jesus Christ we can be made whole. We can be whole while we wait for healing but being wholehearted in Him
+- Camille Johnson says:
+	"We are whole in Jesus Christ when we exercise our agency to follow Him in faith, submit our hearts to Him so He can change them, keep His commandments, and enter a covenant relationship with Him, meekly enduring and learning from the challenges of this earthly estate until we return to His presence and are healed in every way. I can be whole while I wait for healing if I am wholehearted in my relationship with Him."
+- Camille Johnson says:
+	"The Lord told Enos his faith had made him “whole.” Wholeness came as Enos pondered on the words of his prophet-father, Jacob, as he hungered to understand the opportunity for eternal life, as he cried unto God in mighty prayer. And in that state of desire and humility, the voice of the Lord came to him, announcing his sins were forgiven. And Enos asked the Lord, “How is it done?” And the Lord responded, “Because of thy faith in Christ, … thy faith hath made thee whole.”"
+- Camille Johnson says:
+	"Through our faith in Jesus Christ, we can seek to be spiritually whole while we wait and hope for physical and emotional healing."
 - 
 ## Elder Eyring "Draw Near Unto Me"
 [Full Talk](https://www.churchofjesuschrist.org/study/general-conference/2025/04/18eyring?lang=eng)
