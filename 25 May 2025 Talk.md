@@ -10,7 +10,7 @@
 	8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 	9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.
 - Elder Eyring promises:
-	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him.”By helping others for the Savior, you will find that you are drawing nearer to Him."
+	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him. ”By helping others for the Savior, you will find that you are drawing nearer to Him."
 - Bringing family members back is not your job. Creating an environment where they can feel loved and more easily feel the spirit is what will allow the spirit to do its job.
 - As we continue to strive to follow Jesus Christ we can be made whole. We can be whole while we wait for healing but being wholehearted in Him
 - Camille Johnson says:
