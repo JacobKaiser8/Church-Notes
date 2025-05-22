@@ -1,5 +1,8 @@
 #ElderEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
 
+- Doctrine and Covenants 88:63
+- Here is His invitation to us: “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.”
+- 
 ## Elder Eyring "Draw Near Unto Me"
 [Full Talk](https://www.churchofjesuschrist.org/study/general-conference/2025/04/18eyring?lang=eng)
 
