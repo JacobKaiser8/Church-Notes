@@ -58,3 +58,4 @@ Drawing from the parable of the ten virgins, President Johnson underscores the i
 She reassures that while physical and emotional healing may not occur in this life, complete restoration will come through the Resurrection. In the meantime, individuals can choose to be spiritually whole by exercising faith in Jesus Christ.
 
 President Johnson concludes by affirming her own conversion to the Lord Jesus Christ and expressing confidence in eventual healing, emphasizing that spiritual wholeness is achievable now through faith and devotion.
+
