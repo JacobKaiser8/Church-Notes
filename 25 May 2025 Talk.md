@@ -1,10 +1,6 @@
 #PresidentEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
 
 #### "How can we allow the Savior to gather us as his sheep"
-
-
-#### Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
-63. Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
 ####
 #### Mosiah 18:8-9	
 8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
@@ -22,6 +18,9 @@
 - The same is with the teachings and promptings from the Savior. I think we all know how to "Seek the Savior" We learn pretty early that the primary answers or the foundational answers are: Pray, Read your Scriptures, Fast, Go to Church. But I think the harder part is internalizing the change that comes from doing these things. When we hear something in church or when we are learning in "Come Follow Me" or the scriptures how often do we take it in as a neat fact or nod in agreement believing that what is being said is true or that we agree and believe. To truly feel the impact of what the Lord is trying to teach us and in turn to feel the love from the savior is to take what you learn and to internalize or practice. What is excellent about the gospel as opposed to a hobby or in my case with Jiu Jitsu, is that we feel the effects of our works almost immediately as we practice the teachings of the Savior. I have found that when I am doing what is right and listening, the Spirit is quick to tell me and fill my heart with a joy and knowledge that I am doing the right thing. I am allowing the Savior to work in my life and shape to be an instrument for him.
 - Again to the analogy of a hobby, when we stop or we take a break not only do we miss the opportunity to learn and grow, we also seem to find that our talent begins to recede. Listening to the promptings of the spirit and allowing the Savior is much the same. It takes consistence and persistence to continue to build up our faith and hope in the subtle promptings. As we continue to do so, the Lord is able to more easily shape us and build us up to how he would have us be. 
 - At some portions of our lives there will be difficult trials and we will feel as though we are distant from the Savior. President Eyring reassures us in his talk that through diligent seeking, prayer, and service, individuals can feel the Savior’s love and presence in their lives.
+
+#### Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
+63. Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
 #### Prayer
 - In the Bible Dictionary, it defines prayer as, "the act by which the will of the Father and the will of the child are brought into correspondence with each other. The object of prayer is not to change the will of God but to secure for ourselves and for others blessings that God is already willing to grant but that are made conditional on our asking for them."
 #### Extra
