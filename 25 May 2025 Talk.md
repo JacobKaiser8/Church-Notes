@@ -9,10 +9,9 @@
 #### Mosiah 18:8-9	
 8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life
-####
-- President Eyring in his talk "Draw Near Unto Me" promises:
+#### President Eyring in his talk "Draw Near Unto Me" promises:
 	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him. ”By helping others for the Savior, you will find that you are drawing nearer to Him."
- - Camille Johnson in her talk "Spiritually Whole Unto Him" says:
+#### Camille Johnson in her talk "Spiritually Whole Unto Him" says:
 	"We are whole in Jesus Christ when we exercise our agency to follow Him in faith, submit our hearts to Him so He can change them, keep His commandments, and enter a covenant relationship with Him, meekly enduring and learning from the challenges of this earthly estate until we return to His presence and are healed in every way."
 ####
 - For most of us, these promises are not a one and done, but a continuing commitment to the covenants that we have made. The changes that we make to grow closer to Christ are not life altering but are more incremental in our daily choices. 
