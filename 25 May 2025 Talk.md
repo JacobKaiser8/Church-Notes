@@ -1,25 +1,32 @@
 #ElderEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
 
 #### "How can we allow the Savior to gather us as his sheep"
-- #### Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
-	- 63 - Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
+
+
+#### Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
+63. Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
 ####
-- Consistent Persistent changes
-- Taking the words to heart. Thinking, "how does that affect my life/How can I allow that to change me?"
-	- Humility and meekness
-	- Don't take the Gospel as cool facts or interesting knowledge, but take it personally
-	- When I was growing up my dad used to explain to me all sorts of facts about church history and as someone who thinks very logically I always stored them away as just facts. However, as I have been studying come follow me this year, I have seen more and more about how the Lord played such a powerful role in the lives of the early church leaders. I listen to a couple different podcasts and they have helped me to see how they were much more human and real than I think I had once considered them. As I come to learn more about their humanity and the way that the Lord loved and supported them in spite of that, I am able to myself see how I can use their examples in my own life.  
-- One question that I have found myself asking is, "If I were in the same position, how would I have handled the situation? Would I have found the same courage and strength in the Lord?"
-- When I ask myself these questions I find that I draw closer to my Savior for strength and guidance.  
-####
-- #### Mosiah 18:8-9	
-	- 8 - As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
-	- 9 - Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.
+#### Mosiah 18:8-9	
+8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
+9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life
 ####
 - Elder Eyring in his talk "Draw Near Unto Me" promises:
 	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him. ”By helping others for the Savior, you will find that you are drawing nearer to Him."
- - Camille Johnson says:
+ - Camille Johnson in her talk "Spiritually Whole Unto Him" says:
 	"We are whole in Jesus Christ when we exercise our agency to follow Him in faith, submit our hearts to Him so He can change them, keep His commandments, and enter a covenant relationship with Him, meekly enduring and learning from the challenges of this earthly estate until we return to His presence and are healed in every way."
+####
+- For most of us, these promises are not a one and done, but a continuing commitment to the covenants that we have made. The changes that we make to grow closer to Christ are not life altering but are more incremental in our daily choices. 
+- I think of it like any other talent that we want to grow. When we are learning a new hobby or a new sport, we are not good at it the first time. Sometimes not even the first few years. Its been a while but at one point I enjoyed training Jiu Jitsu. The first time I went I actually thought I might die. It was difficult and learning how to not panic when someone is trying to choke you out or push you to the point right before harming you, is a difficult thing to learn. It took me months to really get comfortable with it and even then there was always a new challenge to get over. 
+- While I was learning sometimes I would be so tired that I would watch what the instructor was telling us to do and I would file that away as an interesting way to do a move or an good way to help myself, however when it came time to practice, I wouldn't have really internalized what he was teaching me and I would go back to my floundering and poor performance. I had to see myself in the move or I had to immediately go and practice it to learn and grow. If I just listened, I would believe that there was ways to get better and to grow but I myself would not.
+- The same is with the teachings and promptings from the Savior. When we hear something in church or when we are learning in "Come Follow Me" how often do we take it in as a neat fact or nod in agreement believing that what is being said is true or that we believe. The real way to feel the impact of the teaching and to feel the love from the savior is to internalize it and to go and practice. What is excellent about the gospel as opposed to a hobby or in my case with Jiu Jitsu, is that we feel the effects of our works almost immediately as we practice the teachings of the Savior. I have found that when we are doing what is right and we are listening, the Spirit is quick to tell fill our hearts with joy and knowledge that we are moving allowing the Savior to work in our lives.
+- Again to the analogy of a hobby, when we stop or we take a break not only do we miss the opportunity to learn and grow, we also seem to find that our talent begins to recede. Listening to the promptings of the spirit and allowing the Savior is much the same. It takes consistence and persistence to continue to build up our faith and hope in the subtle promptings. As we continue to do so, the Lord is able to more easily shape us and build us up to how he would have us be. 
+- In the Bible Dictionary, it defines prayer as, ""
+- Taking the words to heart. Thinking, "How does that affect my life/How can I allow that to change me?"
+	- Humility and meekness
+	- Don't take the Gospel as cool facts or interesting knowledge, but take it personally
+
+- One question that I have found myself asking is, "If I were in the same position, how would I have handled the situation? Would I have found the same courage and strength in the Lord?"
+- When I ask myself these questions I find that I draw closer to my Savior for strength and guidance.  
 
 - Bringing family members back is not your job. Creating an environment where they can feel loved and more easily feel the spirit is what will allow the spirit to do its job.
 - As we continue to strive to follow Jesus Christ we can be made whole. We can be whole while we wait for healing but being wholehearted in Him
@@ -89,3 +96,6 @@ She reassures that while physical and emotional healing may not occur in this li
 
 President Johnson concludes by affirming her own conversion to the Lord Jesus Christ and expressing confidence in eventual healing, emphasizing that spiritual wholeness is achievable now through faith and devotion.
 
+#### Unused
+
+When I was growing up my dad used to explain to me all sorts of facts about church history and as someone who thinks very logically I always stored them away as just facts. However, as I have been studying come follow me this year, I have seen more and more about how the Lord played such a powerful role in the lives of the early church leaders. I listen to a couple different podcasts and they have helped me to see how they were much more human and real than I think I had once considered them. As I come to learn more about their humanity and the way that the Lord loved and supported them in spite of that, I am able to myself see how I can use their examples in my own life.  
