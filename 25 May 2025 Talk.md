@@ -1,7 +1,7 @@
 #ElderEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
 
 #### "How can we allow the Savior to gather us as his sheep"
-- Doctrine and Covenants 88:63
+- Doctrine and Covenants 88:63[]
 - Here is His invitation to us: “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.”
 - Consistent Persistent changes
 - Taking the words to heart. Thinking, "how that affect my life/How can I allow that to change me?"
