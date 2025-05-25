@@ -1,16 +1,20 @@
 #ElderEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
 
 #### "How can we allow the Savior to gather us as his sheep"
-- Doctrine and Covenants 88:63[]
-- Here is His invitation to us: “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.”
+- Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
+	63. Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
 - Consistent Persistent changes
-- Taking the words to heart. Thinking, "how that affect my life/How can I allow that to change me?"
-- Don't take the Gospel as cool facts or interesting knowledge, but take it personally
+- Taking the words to heart. Thinking, "how does that affect my life/How can I allow that to change me?"
+	- Humility and meekness
+	- Don't take the Gospel as cool facts or interesting knowledge, but take it personally
+	- When I was growing up my dad used to explain to me all sorts of facts about church history and as someone who thinks very logically I always stored them away as just facts. However, as I have been studying come follow me this year, I have seen more and more about how the Lord played such a powerful role in the lives of the early church leaders. I listen to a couple different podcasts and they have helped me to see how they were much more human and real than I think I had once considered them. As I come to learn more about their humanity and the way that the Lord loved and supported them in spite of that, I am able to myself see how I can use their examples in my own life.  
 - Mosiah 18:8-9	
 	8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 	9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.
 - Elder Eyring promises:
 	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him. ”By helping others for the Savior, you will find that you are drawing nearer to Him."
+
+
 - Bringing family members back is not your job. Creating an environment where they can feel loved and more easily feel the spirit is what will allow the spirit to do its job.
 - As we continue to strive to follow Jesus Christ we can be made whole. We can be whole while we wait for healing but being wholehearted in Him
 - Camille Johnson says:
