@@ -2,7 +2,7 @@
 
 #### "How can we allow the Savior to gather us as his sheep"
 ####
-#### Mosiah 18:8-9 [](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p8-p9#p8)
+#### Mosiah 18:8-9 [Link](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p8-p9#p8)
 8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life
 #### President Eyring in his talk "Draw Near Unto Me" promises:
@@ -19,7 +19,7 @@
 - Again to the analogy of a hobby, when we stop or we take a break not only do we miss the opportunity to learn and grow, we also seem to find that our talent begins to recede. Listening to the promptings of the spirit and allowing the Savior is much the same. It takes consistence and persistence to continue to build up our faith and hope in the subtle promptings. As we continue to do so, the Lord is able to more easily shape us and build us up to how he would have us be. 
 - At some portions of our lives there will be difficult trials and we will feel as though we are distant from the Savior. President Eyring reassures us in his talk that through diligent seeking, prayer, and service, individuals can feel the Savior’s love and presence in their lives.
 
-#### Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
+#### Doctrine and Covenants 88:63[Link](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
 63. Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
 #### Prayer
 - In the Bible Dictionary, it defines prayer as, "the act by which the will of the Father and the will of the child are brought into correspondence with each other. The object of prayer is not to change the will of God but to secure for ourselves and for others blessings that God is already willing to grant but that are made conditional on our asking for them."
