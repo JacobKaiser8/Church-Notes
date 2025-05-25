@@ -2,7 +2,7 @@
 
 #### "How can we allow the Savior to gather us as his sheep"
 ####
-#### Mosiah 18:8-9	
+#### Mosiah 18:8-9
 8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life
 #### President Eyring in his talk "Draw Near Unto Me" promises:
