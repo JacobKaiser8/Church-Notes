@@ -1,4 +1,4 @@
-#ElderEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
+#PresidentEyring/DrawNearUntoMe #CamilleJohnson/SpirituallyWholeUntoHim
 
 #### "How can we allow the Savior to gather us as his sheep"
 
@@ -10,7 +10,7 @@
 8. As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 9. Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life
 ####
-- Elder Eyring in his talk "Draw Near Unto Me" promises:
+- President Eyring in his talk "Draw Near Unto Me" promises:
 	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him. ”By helping others for the Savior, you will find that you are drawing nearer to Him."
  - Camille Johnson in her talk "Spiritually Whole Unto Him" says:
 	"We are whole in Jesus Christ when we exercise our agency to follow Him in faith, submit our hearts to Him so He can change them, keep His commandments, and enter a covenant relationship with Him, meekly enduring and learning from the challenges of this earthly estate until we return to His presence and are healed in every way."
@@ -20,9 +20,10 @@
 - While I was learning sometimes I would be so tired that I would watch what the instructor was telling us to do and I would file that away as an interesting way to do a move or an good way to help myself, however when it came time to practice, I wouldn't have really internalized what he was teaching me and I would go back to my floundering and poor performance. I had to see myself in the move or I had to immediately go and practice it to learn and grow. If I just listened, I would believe that there was ways to get better and to grow but I didn't find that I would really improve. I had to ask myself, "How and Where can I use this?"
 - The same is with the teachings and promptings from the Savior. I think we all know how to "Seek the Savior" We learn pretty early that the primary answers or the foundational answers are: Pray, Read your Scriptures, Fast, Go to Church. But I think the harder part is internalizing the change that comes from doing these things. When we hear something in church or when we are learning in "Come Follow Me" or the scriptures how often do we take it in as a neat fact or nod in agreement believing that what is being said is true or that we agree and believe. To truly feel the impact of what the Lord is trying to teach us and in turn to feel the love from the savior is to take what you learn and to internalize or practice. What is excellent about the gospel as opposed to a hobby or in my case with Jiu Jitsu, is that we feel the effects of our works almost immediately as we practice the teachings of the Savior. I have found that when I am doing what is right and listening, the Spirit is quick to tell me and fill my heart with a joy and knowledge that I am doing the right thing. I am allowing the Savior to work in my life and shape to be an instrument for him.
 - Again to the analogy of a hobby, when we stop or we take a break not only do we miss the opportunity to learn and grow, we also seem to find that our talent begins to recede. Listening to the promptings of the spirit and allowing the Savior is much the same. It takes consistence and persistence to continue to build up our faith and hope in the subtle promptings. As we continue to do so, the Lord is able to more easily shape us and build us up to how he would have us be. 
+- At some portions of our lives there will be difficult trials and we will feel as though we are distant from the Savior. President Eyring reassures us in his talk that through diligent seeking, prayer, and service, individuals can feel the Savior’s love and presence in their lives.
 #### Prayer
 - In the Bible Dictionary, it defines prayer as, "the act by which the will of the Father and the will of the child are brought into correspondence with each other. The object of prayer is not to change the will of God but to secure for ourselves and for others blessings that God is already willing to grant but that are made conditional on our asking for them."
-####
+#### Extra
 - One question that I have found myself asking is, "If I were in the same position, how would I have handled the situation? Would I have found the same courage and strength in the Lord?"
 - When I ask myself these questions I find that I draw closer to my Savior for strength and guidance.  
 
