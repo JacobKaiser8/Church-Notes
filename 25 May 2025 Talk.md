@@ -2,7 +2,7 @@
 
 #### "How can we allow the Savior to gather us as his sheep"
 - #### Doctrine and Covenants 88:63	[](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/88?lang=eng&id=p63#p63)
-	63 - Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
+	- 63 - Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.
 ####
 - Consistent Persistent changes
 - Taking the words to heart. Thinking, "how does that affect my life/How can I allow that to change me?"
@@ -13,10 +13,10 @@
 - When I ask myself these questions I find that I draw closer to my Savior for strength and guidance.  
 ####
 - #### Mosiah 18:8-9	
-	8 - As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
-	9 - Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.
+	- 8 - As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
+	- 9 - Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.
 ####
-- Elder Eyring promises:
+- Elder Eyring in his talk "Draw Near Unto Me" promises:
 	"As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him. ”By helping others for the Savior, you will find that you are drawing nearer to Him."
  - Camille Johnson says:
 	"We are whole in Jesus Christ when we exercise our agency to follow Him in faith, submit our hearts to Him so He can change them, keep His commandments, and enter a covenant relationship with Him, meekly enduring and learning from the challenges of this earthly estate until we return to His presence and are healed in every way."
