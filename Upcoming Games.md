@@ -1,15 +1,15 @@
 ** - Maybe
 
-05 November 2025 - Veil of the Witch
-08 August 2025 - Mafia: The Old Country
-09 October 2025 - Necesse
-13 November 2025 - Pax Romana
 14 July 2025 - Dawn Apart
 14 July 2025 - Kaizen a Factory Story
-20 August 2025 - Morbid Metal
 29 July 2025 - Grounded 2
-29 October 2025 - Outer Worlds 2
+08 August 2025 - Mafia: The Old Country
+20 August 2025 - Morbid Metal
 31 August 2025 - Formula Legends
+09 October 2025 - Necesse
+29 October 2025 - Outer Worlds 2
+05 November 2025 - Veil of the Witch
+13 November 2025 - Pax Romana
 Q3 2025 - Chronos the New Dawn
 Q3 2025 - Echoes of the End
 Q4 2025 - Xbox Ally
