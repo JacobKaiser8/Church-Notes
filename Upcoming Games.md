@@ -14,6 +14,7 @@ The Expanse: Osiris Reborn
 Veil of the Witch
 20 August 2025 - Morbid Metal
 
+** Wander Burg **
 ** Dispatch **
 ** Ever Siege **
 ** Farever **
