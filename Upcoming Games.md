@@ -16,4 +16,5 @@ Generation Exile **
 Alters ** I would like to see more about the game before deciding. The crafting looks a little shallow
 Pathfinder Abomination Vaults **
 Moonlighter 2 - The Endless Vault **
+Farever **
 
