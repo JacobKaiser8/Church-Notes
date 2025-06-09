@@ -7,19 +7,19 @@
 14 July 2025 - Dawn Apart
 14 July 2025 - Kaizen a Factory Story
 20 August 2025 - Morbid Metal
-2025 - Echoes of the End
-2025 - Xbox Ally
-2026 - James Bond
+29 July 2025 - Grounded 2
 29 October 2025 - Outer Worlds 2
 31 August 2025 - Formula Legends
+Q1 2026 - James Bond
+Q3 2025 - Chronos the New Dawn
+Q3 2025 - Echoes of the End
+Q4 2025 - Xbox Ally
+Q4 2026 - Beast of Reincarnation
+Q4 2026 - The Blood of Dawnwalker
+TBA - Clockwork Revolution
 TBA - Den of Wolves
 TBA - Terra Tech Legion
 TBA - The Expanse: Osiris Reborn
-2026 - The Blood of Dawnwalker
-2026 - Beast of Reincarnation
-TBA - Clockwork Revolution
-29 July 2025 - Grounded 2
-
 
 ** Wander Burg **
 ** Dispatch **
