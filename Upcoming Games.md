@@ -8,3 +8,5 @@ James Bond
 Necesse
 Den of Wolves
 The Rogue Prince of Persia **
+Kaizen a Factory Story
+Dawn Apart
