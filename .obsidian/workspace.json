@@ -41,12 +41,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "New Year Goals.md",
+                "file": "Upcoming Games.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "New Year Goals"
+              "title": "Upcoming Games"
             }
           }
         ],
@@ -207,8 +207,8 @@
   },
   "active": "ae1474b4b6e92228",
   "lastOpenFiles": [
-    "Interview Advice.md",
     "New Year Goals.md",
+    "Interview Advice.md",
     "Upcoming Games.md",
     "Solar Panel Questions.md",
     "Gospel Study/2024-12-04.md",
