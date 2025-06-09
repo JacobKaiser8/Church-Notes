@@ -18,7 +18,8 @@ TBA - The Expanse: Osiris Reborn
 2026 - The Blood of Dawnwalker
 2026 - Beast of Reincarnation
 TBA - Clockwork Revolution
-Grounded 2
+29 July 2025 - Grounded 2
+
 
 ** Wander Burg **
 ** Dispatch **
