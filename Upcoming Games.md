@@ -16,6 +16,7 @@ Q4 2025 - Xbox Ally
 Q4 2026 - Beast of Reincarnation
 Q4 2026 - James Bond
 Q4 2026 - The Blood of Dawnwalker
+Q4 2026 - Mudang Two Hearts
 TBA - Clockwork Revolution
 TBA - Den of Wolves
 TBA - Terra Tech Legion
