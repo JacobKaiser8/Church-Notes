@@ -5,8 +5,8 @@
 20 August 2025 - Morbid Metal
 2025 - Echoes of the End
 29 October 2025 - Outer Worlds 2
-Formula Legends
-James Bond
+31 August 2025 - Formula Legends
+2026 - James Bond
 Kaizen a Factory Story
 Mafia
 Necesse
