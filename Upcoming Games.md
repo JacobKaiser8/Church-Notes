@@ -12,6 +12,7 @@ Necesse
 Terra Tech Legion
 The Expanse: Osiris Reborn
 Veil of the Witch
+20 August 2025 - Morbid Metal
 
 ** Dispatch **
 ** Ever Siege **
