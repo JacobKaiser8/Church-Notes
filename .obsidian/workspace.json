@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Gospel Study/2025-02-17.md",
+                "file": "Upcoming Games.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "2025-02-17"
+              "title": "Upcoming Games"
             }
           },
           {
@@ -49,8 +49,7 @@
               "title": "Upcoming Games"
             }
           }
-        ],
-        "currentTab": 2
+        ]
       }
     ],
     "direction": "vertical"
@@ -205,11 +204,12 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "ae1474b4b6e92228",
+  "active": "9a424d508f6ad1a8",
   "lastOpenFiles": [
+    "Gospel Study/2025-02-17.md",
+    "Upcoming Games.md",
     "New Year Goals.md",
     "Interview Advice.md",
-    "Upcoming Games.md",
     "Solar Panel Questions.md",
     "Gospel Study/2024-12-04.md",
     "25 May 2025 Talk.md",
@@ -217,7 +217,6 @@
     "Gospel Study/2025-05-04.md",
     "Church/Activity Days Activities.md",
     "Gospel Study/2025-03-17.md",
-    "Gospel Study/2025-02-17.md",
     "Gospel Study/2025-02-10.md",
     "Gospel Study/2024-12-10.md",
     "Church/Untitled.md",
