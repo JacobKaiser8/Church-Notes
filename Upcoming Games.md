@@ -32,3 +32,4 @@ TBA - The Expanse: Osiris Reborn
 ** The Rogue Prince of Persia **
 ** Voyager of Nera **
 ** Alters ** I would like to see more about the game before deciding. The crafting looks a little shallow
+** Ninja Gaiden 4 **
