@@ -15,6 +15,7 @@
 TBA - Den of Wolves
 TBA - Terra Tech Legion
 TBA - The Expanse: Osiris Reborn
+2026 - The Blood of Dawnwalker
 
 
 ** Wander Burg **
