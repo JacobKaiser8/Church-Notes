@@ -3,7 +3,7 @@
 The Expanse: Osiris Reborn
 Echoes of the End
 Veil of the Witch
-Herogami
+Herogami **
 Formula Legends
 Mafia
 James Bond
@@ -13,3 +13,7 @@ The Rogue Prince of Persia **
 Kaizen a Factory Story
 Dawn Apart
 Generation Exile **
+Alters ** I would like to see more about the game before deciding. The crafting looks a little shallow
+Pathfinder Abomination Vaults **
+Moonlighter 2 - The Endless Vault **
+
