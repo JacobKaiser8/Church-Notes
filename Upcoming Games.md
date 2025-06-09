@@ -13,6 +13,8 @@ Terra Tech Legion
 The Expanse: Osiris Reborn
 Veil of the Witch
 20 August 2025 - Morbid Metal
+29 October 2025 - Outer Worlds 2
+
 
 ** Wander Burg **
 ** Dispatch **
