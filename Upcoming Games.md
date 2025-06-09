@@ -6,3 +6,4 @@ Formula Legends
 Mafia
 James Bond
 Necesse
+Den of Wolves
