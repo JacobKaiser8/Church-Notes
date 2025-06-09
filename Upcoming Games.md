@@ -1,19 +1,19 @@
 ** - Maybe
 
 13 November 2025 - Pax Romana
-Dawn Apart
-Den of Wolves
-Echoes of the End
+14 July 2025 - Dawn Apart
+20 August 2025 - Morbid Metal
+2025 - Echoes of the End
+29 October 2025 - Outer Worlds 2
 Formula Legends
 James Bond
 Kaizen a Factory Story
 Mafia
 Necesse
+TBA - Den of Wolves
 Terra Tech Legion
 The Expanse: Osiris Reborn
 Veil of the Witch
-20 August 2025 - Morbid Metal
-29 October 2025 - Outer Worlds 2
 
 
 ** Wander Burg **
