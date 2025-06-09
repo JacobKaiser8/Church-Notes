@@ -17,11 +17,12 @@ This will just help with all the proceeding goals and allow me to get more done 
 ## Lose Weight
 
 #### Specifics:
-- Lose weight before Japan
+- Lose weight before ~~Japan~~ North Carolina
 	- 20 lb maybe
 - Lose weight before North Carolina
 	- Get to 200 lb
-- The goal is that this will allow me to have more energy for the day to do things. especially when the baby comes.
+	- UPDATE 09 JUN 2025: I have been going to the gym for 3 weeks but I haven't been losing as fast due to muscle gain as well. I may need to adjust the goal.
+- The goal is that this will allow me to have more energy for the day to do things, especially when the baby comes.
 #### Plan:
 - Steps
 	- Jump rope in basement
@@ -30,16 +31,13 @@ This will just help with all the proceeding goals and allow me to get more done 
 	- Stay consistent
 	- Dieting
 #### Milestones:
-December 15th: x
-January 1st: x
-January 15th: 
-February 1st: 
-February 15th: 
+09 June 2025: 265 lb
+
 
 ## Finish Basement
 #### Specifics:
 - Get the hallway done
-	- Move into hallway
+	- Move office into hallway
 - Get the office done
 - Get the main room done
 #### Plan:
