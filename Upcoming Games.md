@@ -1,26 +1,28 @@
 ** - Maybe
 
-The Expanse: Osiris Reborn
-Echoes of the End
-Veil of the Witch
-Herogami **
-Formula Legends
-Mafia
-James Bond
-Necesse
-Den of Wolves
-The Rogue Prince of Persia **
-Kaizen a Factory Story
+13 November 2025 - Pax Romana
 Dawn Apart
-Generation Exile **
-Alters ** I would like to see more about the game before deciding. The crafting looks a little shallow
-Pathfinder Abomination Vaults **
-Moonlighter 2 - The Endless Vault **
-Farever **
-The Last Caretaker **
-Railborn **
-Voyager of Nera **
-Garbage Country **
-Ever Siege **
+Den of Wolves
+Echoes of the End
+Formula Legends
+James Bond
+Kaizen a Factory Story
+Mafia
+Necesse
 Terra Tech Legion
-Dispatch **
+The Expanse: Osiris Reborn
+Veil of the Witch
+
+** Dispatch **
+** Ever Siege **
+** Farever **
+** Garbage Country **
+** Generation Exile **
+** Herogami **
+** Moonlighter 2 - The Endless Vault **
+** Pathfinder Abomination Vaults **
+** Railborn **
+** The Last Caretaker **
+** The Rogue Prince of Persia **
+** Voyager of Nera **
+** Alters ** I would like to see more about the game before deciding. The crafting looks a little shallow
