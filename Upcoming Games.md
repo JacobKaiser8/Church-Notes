@@ -7,9 +7,9 @@
 29 October 2025 - Outer Worlds 2
 31 August 2025 - Formula Legends
 2026 - James Bond
-Kaizen a Factory Story
-Mafia
-Necesse
+14 July 2025 - Kaizen a Factory Story
+08 August 2025 - Mafia: The Old Country
+09 October 2025 - Necesse
 TBA - Den of Wolves
 Terra Tech Legion
 The Expanse: Osiris Reborn
