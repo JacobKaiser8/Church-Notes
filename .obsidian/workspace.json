@@ -89,8 +89,7 @@
               "title": "Bookmarks"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
@@ -192,7 +191,7 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "c97084649bf922af",
+  "active": "f0d490a4e07a2cb9",
   "lastOpenFiles": [
     "Church/Activity Days Activities.md",
     "25 May 2025 Talk.md",
