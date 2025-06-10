@@ -4,40 +4,24 @@
     "type": "split",
     "children": [
       {
-        "id": "cd039109fe028eda",
+        "id": "f49559aff925b662",
         "type": "tabs",
         "children": [
           {
-            "id": "9a424d508f6ad1a8",
+            "id": "9c69a92c17bcf930",
             "type": "leaf",
             "state": {
-              "type": "split-diff-view",
+              "type": "markdown",
               "state": {
-                "aFile": ".obsidian/workspace.json",
-                "bFile": ".obsidian/workspace.json",
-                "aRef": ""
+                "file": "New Year Goals.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "diff",
-              "title": "Diff: workspace.json"
-            }
-          },
-          {
-            "id": "3ab591c09b374324",
-            "type": "leaf",
-            "state": {
-              "type": "split-diff-view",
-              "state": {
-                "aFile": "Upcoming Games.md",
-                "bFile": "Upcoming Games.md",
-                "aRef": "HEAD",
-                "bRef": ""
-              },
-              "icon": "diff",
-              "title": "Diff: Upcoming Games"
+              "icon": "lucide-file",
+              "title": "New Year Goals"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -192,10 +176,10 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "3ab591c09b374324",
+  "active": "9c69a92c17bcf930",
   "lastOpenFiles": [
-    "conflict-files-obsidian-git.md",
     "Upcoming Games.md",
+    "conflict-files-obsidian-git.md",
     "Gospel Study/2025-02-17.md",
     "25 May 2025 Talk.md",
     "Solar Panel Questions.md",
