@@ -1,2 +1,3 @@
-- Justin Martyr, First Apology
+- [Justin Martyr, First Apology](https://www.newadvent.org/fathers/0126.htm)
+- 
 - 
