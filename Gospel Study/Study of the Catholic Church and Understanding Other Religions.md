@@ -1,0 +1,9 @@
+- [Justin Martyr, First Apology](https://www.newadvent.org/fathers/0126.htm)
+- Didache
+- Ignatius of Antioch
+- Irenaeus
+- Thomas Aquinus
+- [The Catechism](https://www.vatican.va/archive/ENG0015/_INDEX.HTM)
+- Catholicism - Bishop Robert Barron - Youtube: Word on Fire
+- Catholicism for Dummies
+- Four Witnesses - Rod Bennett
