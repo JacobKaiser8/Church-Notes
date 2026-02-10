@@ -1,1 +1,0 @@
-HSA up to deductibles then make sure that you have enough. 
