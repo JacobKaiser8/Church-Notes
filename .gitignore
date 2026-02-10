@@ -1,0 +1,27 @@
+##################################################
+# Obsidian recommended gitignore
+##################################################
+
+# --- Workspace & UI state (device-specific) ---
+.obsidian/workspace.json
+.obsidian/workspace-mobile.json
+
+# --- Cache files (auto-generated, safe to ignore) ---
+.obsidian/cache
+.obsidian/workspace
+.obsidian/graph.json
+
+# --- Local plugin data that causes conflicts ---
+.obsidian/plugins/*/data.json
+
+# (optional) Ignore plugin-specific temp folders if needed
+.obsidian/plugins/*/.cache
+
+# --- OS junk files ---
+.DS_Store
+Thumbs.db
+
+# --- Node / development (if you ever add scripts) ---
+node_modules/
+
+##################################################
