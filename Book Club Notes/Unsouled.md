@@ -1,4 +1,6 @@
 - What's the core and what's the point of it?
+	- I know its the source of magic but it was introduced with the reader already knowing about it.
+- Feels a little like naruto? or is it just cause I am watching it now?
 ## Pros
 
 - I like the oriental culture so far
