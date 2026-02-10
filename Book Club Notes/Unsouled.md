@@ -4,6 +4,10 @@ A foundational start to a series that feels like the beginning of shonen anime i
 - What's the core and what's the point of it?
 	- I know its the source of magic but it was introduced with the reader already knowing about it.
 - Feels a little like naruto? or is it just cause I am watching it now?
+- Fight from Chapter 5 feels weird. 
+	- why is an 8 year old fighting an adult?
+	- It felt a little as though it was setup more for the scene AFTER the intial fight.
+- 
 ## Pros
 
 - I like the oriental culture so far
