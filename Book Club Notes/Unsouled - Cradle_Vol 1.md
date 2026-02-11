@@ -1,6 +1,6 @@
 A foundational start to a series that feels like the beginning of Shonen anime in prose form.
 
-
+## General thoughts
 - What's the core and what's the point of it?
 	- I know its the source of magic but it was introduced with the reader already knowing about it.
 - Feels a little like Naruto? or is it just cause I am watching it now?
@@ -10,6 +10,8 @@ A foundational start to a series that feels like the beginning of Shonen anime i
 - I think that this book is worldbuilding and using a story to do that rather than has a story and using world building to tell the story.
 - I think this book is trying to do too much in the first book in the series, space lady, demon lord, clan fights, progressing boy, etc.
 	- If each of these things was introduced slower over some of the other books, it would feel more natural for the reader to follow along with. They could be very different but all these plot points are revealed within the first half of the first book of a 12 part series. It feels again like the world building is the main purpose and the story is just a way to do that.
+- The space lady makes all this effort to appear not a deity but then she comes down in power and glory to poof the demon lord away???
+	- When Lindon is brought back to life the BIG FIGHT SCENE that is suppose to happen between Lindon and the Copper, the grandson of the patriarch is one sentence long and not even a scene.
 - 
 ## Pros
 
