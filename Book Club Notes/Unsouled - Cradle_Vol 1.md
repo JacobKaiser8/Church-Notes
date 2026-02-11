@@ -8,6 +8,9 @@ A foundational start to a series that feels like the beginning of shonen anime i
 	- why is an 8 year old fighting an adult?
 	- It felt a little as though it was setup more for the scene AFTER the intial fight.
 - I think that this book is worldbuilding and using a story to do that rather than has a story and using world building to tell the story.
+- I think this book is trying to do too much in the first book in the series, space lady, demon lord, clan fights, progressing boy, etc.
+	- If each of these things was introduced slower over some of the other books, it would feel more natural for the reader to follow along with. They could be very different but all these plot points are revealed within the first half of the first book of a 12 part series. It feels again like the world building is the main purpose and the story is just a way to do that.
+- 
 ## Pros
 
 - I like the oriental culture so far
