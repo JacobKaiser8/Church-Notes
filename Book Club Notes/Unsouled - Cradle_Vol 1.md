@@ -1,4 +1,20 @@
 A foundational start to a series that feels like the beginning of Shonen anime in prose form.
+## Grading
+### 25%
+3.75/5.0:
+
+So far I think that this book is 
+
+### 50%
+3.0 - 3.25/5.0
+
+So far I think that this book lacks foundation (heh) for the things that are happening. The world building is cool and interesting however, there is no "why" for the things that are going on. It feels as though Wight is building his world as the book goes along and then using the medium of a story to tell it. The opposite creates a better reading experience. When there is a story to be told and world building is just a tool or paintbrush to tell that story, that is when I feel that a book is really great.
+
+Some things that stand out as positives are the culture and the interesting possibilities of the magic system. I think that his ideas although pulling inspiration from other source material, is unique and fun. I think that Wight has put thought well into how things work and interact. I think he has put thought into filling things out and making it not just be the magic system but having other creatures and beast that also play a part. I think the possibilities presented to the reader (Before the visions of the great warriors he sees with Suriel) make me wonder and think of how the path will progress and how he will overcome the challenges before him. That being said, I do think that the author blows up the possibilities way too quickly by showing Lindon the absolute top. If its not the absolute top, then I think the power creep in this series is too out of scope. I worry that the book will no longer be about the journey but rather the obtaining ultimate power.
+
+Some of the things that stand out as pulling me away from giving this book a better score is the seemingly random events and characters that are at play. The grand patriarch that came about and then vanished, felt totally random. Suriel still feels like a different story entirely. I think the author needed to give more to the reader that would build these things up before dropping them in your lap and then taking them away again in some cases. I understand this is a YA novel but even for a YA novel, it feels very rushed. I know now that there are 12 books in the series so it seems strange to setup all this overarching lore in the first 50% of the very first book.
+### 75%
+
 
 ## General thoughts
 - What's the core and what's the point of it?
