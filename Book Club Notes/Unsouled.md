@@ -7,11 +7,12 @@ A foundational start to a series that feels like the beginning of shonen anime i
 - Fight from Chapter 5 feels weird. 
 	- why is an 8 year old fighting an adult?
 	- It felt a little as though it was setup more for the scene AFTER the intial fight.
-- 
+- I think that this book is worldbuilding and using a story to do that rather than has a story and using world building to tell the story.
 ## Pros
 
 - I like the oriental culture so far
 - I think I like the magic system. With having different schools and also different levels
+- The world building is Deep and I think it has a lot of fun points.
 ## Cons
 
 - I think its weird that he is only 8 years old but the conversations/social maturity that he has is more similar to an older child. 
