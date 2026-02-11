@@ -21,3 +21,5 @@ A foundational start to a series that feels like the beginning of Shonen anime i
 - I think its weird that he is only 8 years old but the conversations/social maturity that he has is more similar to an older child. 
 - I think its weird that he is fighting a 5 year old
 - I think that the story in the first few chapters is moving or flowing too quickly but that could just be the medium/intention of the book itself.
+- The demon just gets poof'ed away? Lindon just gets resurrected? Feels .... lame....
+- 
