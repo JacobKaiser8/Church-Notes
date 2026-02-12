@@ -14,7 +14,9 @@ Some things that stand out as positives are the culture and the interesting poss
 
 Some of the things that stand out as pulling me away from giving this book a better score is the seemingly random events and characters that are at play. The grand patriarch that came about and then vanished, felt totally random. Suriel still feels like a different story entirely. I think the author needed to give more to the reader that would build these things up before dropping them in your lap and then taking them away again in some cases. I understand this is a YA novel but even for a YA novel, it feels very rushed. I know now that there are 12 books in the series so it seems strange to setup all this overarching lore in the first 50% of the very first book.
 ### 75%
+3.0/5.0
 
+Lindon feels as though he doesn't have anything that he really cares about. He moves from his home to the Heaven's Glory School to siding with Yerin so quickly that I feel its hard for the reader to feel grounded in the story. The general settings drifts so easily that its hard for me to 
 If he really does betray the Heaven's Glory School then I don't feel like there is any setting that the story is grounded to.
 
 The abrupt/direct way that he makes the pact with the Yerin doesn't feel very good.
