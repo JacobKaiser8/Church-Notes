@@ -2,9 +2,6 @@ A foundational start to a series that feels like the beginning of Shonen anime i
 ## Grading
 ### 25%
 3.75/5.0:
-
-So far I think that this book is 
-
 ### 50%
 3.0 - 3.25/5.0
 
@@ -16,10 +13,11 @@ Some of the things that stand out as pulling me away from giving this book a bet
 ### 75%
 3.0/5.0
 
-Lindon feels as though he doesn't have anything that he really cares about. He moves from his home to the Heaven's Glory School to siding with Yerin so quickly that I feel its hard for the reader to feel grounded in the story. The general settings drifts so easily that its hard for me to 
-If he really does betray the Heaven's Glory School then I don't feel like there is any setting that the story is grounded to.
+Lindon feels as though he doesn't have anything that he really cares about. He moves from his home to the Heaven's Glory School to siding with Yerin so quickly that I feel its hard for the reader to feel grounded in the story. The general setting drifts so easily that its hard for me to grow attached to anything in the story. The settings themselves are cool but I wish that we could stay in one place and develop something longer.
 
-The abrupt/direct way that he makes the pact with the Yerin doesn't feel very good.
+I understand that his overall goal is like somewhere not here but is that all going to be resolved in this book? What is the point of this book except to build up the other books then?
+### 100%
+
 
 ## General thoughts
 - What's the core and what's the point of it?
