@@ -18,6 +18,10 @@ Lindon feels as though he doesn't have anything that he really cares about. He m
 I understand that his overall goal is like somewhere not here but is that all going to be resolved in this book? What is the point of this book except to build up the other books then?
 ### 100%
 
+The tree fruit at the beginning was such a short part but basically helped him the whole time
+
+The end Lindon is so flip floppy
+
 
 ## General thoughts
 - What's the core and what's the point of it?
