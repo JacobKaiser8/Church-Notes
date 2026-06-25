@@ -10,3 +10,6 @@ Beginner level learning and for reviewing the basics. Some cultural learning
 私は＿＿です
 私はアメリカ人です
 
+# Ep 2
+わたし日本人ではありません。
+あなた - you
