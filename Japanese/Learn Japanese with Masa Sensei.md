@@ -2,4 +2,11 @@ Beginner level learning and for reviewing the basics. Some cultural learning
 
 # Ep 1
 こにちわ
-おはいよご
+こんばんは
+ありがとうございました
+ありがとう
+再おなら
+初めまして
+私は＿＿です
+私はアメリカ人です
+
