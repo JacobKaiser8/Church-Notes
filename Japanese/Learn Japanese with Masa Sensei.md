@@ -13,3 +13,5 @@ Beginner level learning and for reviewing the basics. Some cultural learning
 # Ep 2
 わたし日本人ではありません。- I am not Japanese
 あなた - you
+
+## Ep 3
